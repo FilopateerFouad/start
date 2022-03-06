@@ -1,1 +1,1 @@
-applied programming
+university life
